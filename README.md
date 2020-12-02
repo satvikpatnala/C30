@@ -1,2 +1,2 @@
 # C30
-BIRDNIER TO ME - Slingshot 2020
+BIRDNIER, TO ME - Slingshot 2020
